@@ -1,2 +1,2 @@
 # senior_project
-or else nhi is screwed
+Because I love nhi
